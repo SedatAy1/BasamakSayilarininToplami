@@ -1,0 +1,2 @@
+# BasamakSayilarininToplami
+BasamakSayilarininToplami
